@@ -1,3 +1,4 @@
+Dr. Puja Shrivastava (Academic Leader & Education Specialist)
 A little about me: An academic program leader with 16+ years of experience in schools, EdTech, CSR, and non-profit education, specialised in curriculum evaluation, teacher training, L&D, program design, and large-scale education project delivery. Proven track record of managing multi-stakeholder projects across government schools, improving learning outcomes through data-driven strategies and LMS implementation. Skilled in content writing, monitoring & evaluation, and cross-functional coordination. Passionate about leveraging technology and AI to enhance education quality and scalability.🎓
 Lifetime member of the Indian Science Congress and the All India Association for Educational Research (AIAER).🤖
 Committed to leveraging Generative AI and technology to scale education quality and make learning more accessible and equitable.📚
